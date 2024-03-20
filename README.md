@@ -4,9 +4,9 @@
 
 
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
 
 Coin Master free spins are the backbone of the game, driving players' advancement and adventures as they strive to develop and enhance their villages. Within the game, spins are vital for activating the slot machine, which produces various rewards crucial for progression through the game's stages. These rewards encompass coins essential for constructing buildings and upgrading village elements, as well as attacks and raids that empower players to raid and loot other players' villages.
